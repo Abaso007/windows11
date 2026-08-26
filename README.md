@@ -11,7 +11,7 @@ No files or programs, just console and commands!
 
 > MORE PROJECTS: <https://github.com/awesome-windows11>
 > <br>
-> Site: <https://windows12.glitch.me>
+> Site: <https://t.me/bypassblock>
 > <br>
 > VK: <https://vk.com/flighthub>
 > <br>
